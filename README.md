@@ -1,0 +1,2 @@
+hi am biruk from Ethiopia
+i wana tell the world that am proud to be here today for attending ALX software Engineer course. alx team i want say thank you so much for let me join your course, am shure what i become soon with this opportunity.
